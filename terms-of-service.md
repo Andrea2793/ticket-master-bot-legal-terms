@@ -31,4 +31,4 @@ Ci riserviamo il diritto di modificare questi Termini di Servizio in qualsiasi m
 
 ## 6. Contatti
 
-Per domande o segnalazioni relative al bot, puoi contattarci all'indirizzo email: [tuo_email@example.com].
+Per domande o segnalazioni relative al bot, puoi contattarci all'indirizzo email: [antoninia28@gmail.com].
